@@ -1,0 +1,1 @@
+The first user get purchase the lottery ticket then the winning lottery ticket was released but user can't won that lottery so he want to try the luck how many time I will purchase the lottery then I win the lottery.
